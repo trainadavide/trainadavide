@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I'm currently studying at @UNIFI 
+- Currently studying at @UNIFI 
 
 ### Trophies 🏆
 
